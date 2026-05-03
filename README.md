@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **using code to generate art**
 
-- 📫 How to reach me **gotbaumtoby@gmail.com**
+-
 
 - ⚡ Fun fact **I like psychology**
 
